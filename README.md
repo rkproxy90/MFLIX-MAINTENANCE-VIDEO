@@ -1,8 +1,6 @@
 COPYRIGHT MFLIX STORE
 
-CONTACT ADMIN
+CONTACT ADMIN VIA TELE
 https://t.me/mflixstore_admin
 
-SHOPEE
 
-https://www.shopee.com.my/mflixstore90
